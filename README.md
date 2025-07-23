@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the helpful opensource projects
 - 📫 How to reach me just mail on mohanjoshilalit9411@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Programmers are generally boring guys, I am boring too HaHaHaHa
+- ⚡ Fun fact: Programmers are generally boring guys, I am boring too Hehe
 
 <!---
 Lalitmohanjoshi07/Lalitmohanjoshi07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
